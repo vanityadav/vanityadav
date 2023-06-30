@@ -1,4 +1,4 @@
 - 👋 hi, I’m vanit yadav
-- 👀 I’m interested in Software Engineer
+- 👀 I’m  Software Engineer
 - 📫 Say hi to me @vanityadav08@gmail.com
 
